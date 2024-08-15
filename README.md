@@ -4,7 +4,7 @@ I'm a software development and engineering enthusiast who recently graduated fro
 
 If you want to collaborate or discuss exciting opportunities, feel free to contact me via WhatsApp at [08149116211](tel:08149116211). Let's connect and create something amazing together!
 
-## 📸 Some of My Recent Work
+## 📸 Some of My Certifications
 
 ![Screenshot_20240812-154545](https://github.com/user-attachments/assets/92228a14-028a-4fc3-8a30-b87947082d1d)
 ![Screenshot_20240812-152908](https://github.com/user-attachments/assets/339140f4-9f6b-4d55-91fd-7d9d1a9151e5)
